@@ -15,7 +15,7 @@
 - 🧑‍🤝‍🧑 Looking to connect with fellow enthusiasts in **science** and **art**
 
 ### How to Reach Me
-- 📫 Feel free to reach out via [email](mailto:chris.hongjin.cao@gmail.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/hongjin-cao-18a27329a/)
+- 📫 Feel free to reach out via **REDACTED** or connect with me on **REDACTED**...jk lol :) [LinkedIn](https://www.linkedin.com/in/hongjin-cao-18a27329a/)
 
 ### Pronouns
 - 😄 Pronouns: **he/him**
