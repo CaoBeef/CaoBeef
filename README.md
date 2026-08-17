@@ -1,8 +1,8 @@
 # 👋 Hi, I’m @CaoBeef
 
 ### About Me
-- 🎓 Student and part-time coder at **MTHS**
-- 🌌 Passionate about **science, art, animation, and 3D modeling**
+- 🎓 Student and part-time coder at **Unimelb**
+- 🌌 Passionate about **biotech, art, animation, and 3D modeling**
 - 🧠 Always eager to learn and explore new technologies
 
 ### What I'm Up To
